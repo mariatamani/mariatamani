@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mariatamani
 - 👀 I’m interested in Psychology. 
 - 🌱 I’m currently learning Advanced Cross-cultural Psychology.
-- 💞️ I’m looking to collaborate on writing and coding projects/ assignments.
+- 💞️ I’m looking to collaborate in writing and coding projects/ assignments.
 - 📫 How to reach me s11066691@student.usp.ac.fj
 
 <!---
